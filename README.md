@@ -137,7 +137,6 @@ Not breweries, but places to taste a wide variety of beer from near and far.
 * [Bailey's](http://www.baileystaproom.com/): Solid tap list, mostly West Coast/Pacific NW focused. Gets crowded and loud, for a reason. Sells taster sizes. (Downtown)
 * [Beer Mongers](http://thebeermongers.com/): Eight taps, hundreds of bottles and cans chilled and ready to drink. Friendly and relaxed staff. Kitty-corner from APEX. Sells taster sizes. (Close-in SE)
 * [Belmont Station](http://www.belmont-station.com/): Beer nerd heaven. Very selective tap list and the attached bottle shop has the deepest selection in town. Sells taster sizes. (SE Stark/44th)
-* [Bushwhacker's Cider](http://www.bushwhackercider.com/): Another option for Cider lovers, with a SE and a North Portland location.
 * [Cider Bite](https://www.facebook.com/ciderbite): Newly-opened cider tasting bar. (MW Hoyt/13th)
 * [Green Dragon](http://pdxgreendragon.com/): Owned by Rogue, but fortunately serves beers other than their house brands. 50 taps including a "secret" one. Does not sell taster sizes.
 * [Growlers Guys](http://www.thegrowlerguys.com/our-locations/oregon-portland): Solid list of ~ 40 taps that cover west-coast favorites. Serves pints and taster sizes. (Close-in SE near Commons, Cascade Barrel House and the Green Dragon)
